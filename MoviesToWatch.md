@@ -27,3 +27,10 @@
 - 30 rock
 - watchmen
 - plan 9
+-------------------------
+- honey boy
+- the sound of metal
+- the queens gambit
+- leftovers
+- glow
+- jojo's bizzare adventure
