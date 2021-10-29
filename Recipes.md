@@ -53,5 +53,5 @@ Bake in preheated oven for 60 to 65 minutes, until a toothpick inserted into cen
 * 1 tsp garlic powder
 * 1 tsp cumin
 * 1 tsp salt
-* 
+
 Push the Bean Button and let naturally release.
