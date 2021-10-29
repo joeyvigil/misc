@@ -47,10 +47,11 @@ Bake in preheated oven for 60 to 65 minutes, until a toothpick inserted into cen
 
 **Insta Pot Beans**
 
-1lb Black Beans (Never Soak)
-6 Cups Water
-1 tsp chili powder
-1 tsp garlic powder
-1 tsp cumin
-1 tsp salt
+* 1lb Black Beans (Never Soak)
+* 6 Cups Water
+* 1 tsp chili powder
+* 1 tsp garlic powder
+* 1 tsp cumin
+* 1 tsp salt
+* 
 Push the Bean Button and let naturally release.
