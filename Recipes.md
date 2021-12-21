@@ -45,7 +45,6 @@ Bake in preheated oven for 60 to 65 minutes, until a toothpick inserted into cen
 
 ---
 
-<<<<<<< HEAD
 **Cinnamon Rolls**
 
 https://www.laurainthekitchen.com/recipes/cinnamon-rolls/
@@ -73,7 +72,7 @@ https://www.youtube.com/watch?v=Kibux6TUXMg
 1 1/4 cups of Powdered Sugar
 ½ tsp of Vanilla Extract
 3 to 4 Tbsp of Warm Milk
-=======
+
 **Insta Pot Beans**
 
 * 1lb Black Beans (Never Soak)
@@ -84,4 +83,3 @@ https://www.youtube.com/watch?v=Kibux6TUXMg
 * 1 tsp salt
 
 Push the Bean Button and let naturally release.
->>>>>>> 4213eb2668d4eb6ccb33446308470b8a1718387e
