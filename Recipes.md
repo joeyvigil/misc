@@ -61,17 +61,21 @@ https://www.youtube.com/watch?v=Kibux6TUXMg
 ¼ cup of Unsalted Butter, melted
 4 cups of All Purpose Flour
 ¼ cup of Melted Butter, to brush over the top before baking
+
 **For the Filling**
 1/3 cup of Unsalted Butter, at room temperature
 ¾ cup of Brown Sugar
 ¼ cup of Granulated Sugar
 1 1/2 Tbsp of Ground Cinnamon
+
 **For the Glaze**
 ¼ cup of Cream Cheese, at room temperature
 1 Tbsp of Butter, at room temperature
 1 1/4 cups of Powdered Sugar
 ½ tsp of Vanilla Extract
 3 to 4 Tbsp of Warm Milk
+
+---
 
 **Insta Pot Beans**
 
