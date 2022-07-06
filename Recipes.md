@@ -90,3 +90,18 @@ https://www.youtube.com/watch?v=Kibux6TUXMg
 * 1 tsp salt
 
 Push the Bean Button and let naturally release.
+
+---
+
+**Bread**
+
+* 3.25 cups flour
+* 1 tsp salt
+* 1 packet yeast
+* 1.5 cups warm water
+
+350F for 40 minutes
+
+
+
+
