@@ -100,6 +100,8 @@ Push the Bean Button and let naturally release.
 * 1 packet yeast
 * 1.5 cups warm water
 
+let rise for 30 minutes, knead, transfer it to buttered + flowered bread pan, let rise again
+
 350F for 40 minutes
 
 
