@@ -95,7 +95,7 @@ Push the Bean Button and let naturally release.
 
 **Bread**
 
-* 3.25 cups flour
+* 3.75 cups flour
 * 1 tsp salt
 * 1 packet yeast
 * 1.5 cups warm water
