@@ -104,6 +104,47 @@ let rise for 30 minutes, knead, transfer it to buttered + flowered bread pan
 
 350F for 40 minutes
 
+---
+
+**Baked Ziti**
+
+Ingredients:
+* 1 pound Italian sausage
+* 2 tablespoons olive oil
+* 1 large white onion, diced
+* 48-67 oz tomato sauce
+* 1 (16 ounce) package ziti pasta
+* 15 oz whole-milk ricotta cheese
+* 2 cups  mozzarella cheese
+
+Optional:
+* 1/2 teaspoon dried oregano
+* 1/4 teaspoon dried thyme
+* 1/4 teaspoon dried rosemary
+
+Directions:
+1. Cook Pasta, drain, set aside
+2. chop up onion, cook with sausage in large saucepan
+3. add sauce + pasta to onions and sausage
+4. layer pasta mix and cheeses
+5. Bake at 375 degrees f for 30 - 35 minutes
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
