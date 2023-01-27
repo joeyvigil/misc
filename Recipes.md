@@ -93,19 +93,6 @@ Push the Bean Button and let naturally release.
 
 ---
 
-**Bread**
-
-* 3.75 cups flour
-* 1 tsp salt
-* 1 packet yeast
-* 1.5 cups warm water
-
-let rise for 30 minutes, knead, transfer it to buttered + flowered bread pan
-
-350F for 40 minutes
-
----
-
 **Baked Ziti**
 
 Ingredients:
@@ -129,22 +116,23 @@ Directions:
 4. layer pasta mix and cheeses
 5. Bake at 375 degrees f for 30 - 35 minutes
 
+---
 
+**Moms Bread**
 
+Ingredients 1 (to activate yeast)
+* 2 Packets Active Dry yeast
+* 1 cup ware water
+* 2 tbsp suger
+* 1/2 tsp salt
+* 1/2 cup flour
 
+Ingredients 2 
+* 1 1/4 cups warm milk
+* 2 tbsp suger
+* 2 tsp salt
+* 2 cups flour
+* 3 tbsp shortening
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Preheat oven to 375 degrees F for 35 to 40 minutes, makes 2 loaves
 
