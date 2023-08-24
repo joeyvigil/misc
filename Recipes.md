@@ -136,3 +136,14 @@ Ingredients 2
 
 Preheat oven to 375 degrees F for 35 to 40 minutes, makes 2 loaves
 
+---
+
+**Overnight Oats**
+
+Ingredients
+* 1 cup oats
+* 1/2 cup milk
+* 1/2 cup sweatened yogurt
+  
+Mix together and leave overnight, can also add fruits, raisins, nuts the next day
+
