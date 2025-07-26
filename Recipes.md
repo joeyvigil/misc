@@ -147,3 +147,19 @@ Ingredients
   
 Mix together and leave overnight, can also add fruits, raisins, nuts the next day
 
+---
+
+**Tuna Onigiri**
+
+Ingredients
+* 1 big can of tuna in water (1/3 cup)
+* 4 Tbsp kewpie mayo
+* 1/2 Tbsp soy sauce
+* 1/2 Tbsp Ketchup
+* 1 Tbsp Furikake Nori Komi Rice Seasoning
+
+* Nori Seaweed
+* "2 line" on rice cooker, japanese sushi rice
+
+Mix together tuna ingredients, make triangle out of rice, place tuna on rice, wrap in nori seaweed
+
