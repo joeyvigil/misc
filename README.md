@@ -1,4 +1,4 @@
-**Pizza**
+## Pizza
 
 taken from:
 https://www.youtube.com/watch?v=lzAk5wAImFQ
@@ -26,9 +26,7 @@ Toppings
 
 Bake at 500 degrees for 10 minutes.
 
----
-
-**Banana Bread**
+## Banana Bread
 
 Ingredients
 * 2 cups all-purpose flour
@@ -43,9 +41,7 @@ Preheat oven to 350 degrees F (175 degrees C). Lightly grease a 9x5 inch loaf pa
 In a large bowl, combine flour, baking soda and salt. In a separate bowl, cream together butter and brown sugar. Stir in eggs and mashed bananas until well blended. Stir banana mixture into flour mixture; stir just to moisten. Pour batter into prepared loaf pan.
 Bake in preheated oven for 50 minutes, until a toothpick inserted into center of the loaf comes out clean. Let bread cool in pan for 10 minutes, then turn out onto a wire rack.
 
----
-
-**Cinnamon Rolls**
+## Cinnamon Rolls
 
 https://www.laurainthekitchen.com/recipes/cinnamon-rolls/
 https://www.youtube.com/watch?v=Kibux6TUXMg
@@ -78,9 +74,7 @@ https://www.youtube.com/watch?v=Kibux6TUXMg
 * ½ tsp of Vanilla Extract
 * 3 to 4 Tbsp of Warm Milk
 
----
-
-**Insta Pot Beans**
+## Insta Pot Beans
 
 * 1lb Black Beans (Never Soak)
 * 6 Cups Water
@@ -91,9 +85,7 @@ https://www.youtube.com/watch?v=Kibux6TUXMg
 
 Push the Bean Button and let naturally release.
 
----
-
-**Baked Ziti**
+## Baked Ziti
 
 Ingredients:
 * 1 pound Italian sausage
@@ -116,9 +108,7 @@ Directions:
 4. layer pasta mix and cheeses
 5. Bake at 375 degrees f for 30 - 35 minutes
 
----
-
-**Moms Bread**
+## Moms Bread
 
 Ingredients 1 (to activate yeast)
 * 2 Packets Active Dry yeast
@@ -136,9 +126,7 @@ Ingredients 2
 
 Preheat oven to 375 degrees F for 35 to 40 minutes, makes 2 loaves
 
----
-
-**Overnight Oats**
+## Overnight Oats
 
 Ingredients
 * 2 cup oats
@@ -147,9 +135,7 @@ Ingredients
   
 Mix together and leave overnight, can also add fruits, raisins, nuts the next day
 
----
-
-**Tuna Onigiri**
+## Tuna Onigiri
 
 Ingredients
 * 1 big can of tuna in water (1/3 cup)
@@ -162,4 +148,20 @@ Ingredients
 * "2 line" on rice cooker, japanese sushi rice
 
 Mix together tuna ingredients, make triangle out of rice, place tuna on rice, wrap in nori seaweed
+
+## Rice Vinegar Crab Butter
+
+Ingredients (equal parts)
+* Rice Vinegar
+* Butter
+* sugar
+* garlic powder
+
+## Fish/shrimp sauce**
+
+Ingredients (equal parts)
+* Rice Vinegar
+* Soy Sauce
+* ginger (or ginger powder)
+* scalions or onions
 
