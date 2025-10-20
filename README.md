@@ -157,7 +157,7 @@ Ingredients (equal parts)
 * sugar
 * garlic powder
 
-## Fish/shrimp sauce**
+## Fish/shrimp sauce
 
 Ingredients (equal parts)
 * Rice Vinegar
