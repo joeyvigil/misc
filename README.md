@@ -165,3 +165,11 @@ Ingredients (equal parts)
 * ginger (or ginger powder)
 * scalions or onions
 
+## Cole Slaw
+
+Ingredients
+1 bag cabbage (maybe 1 whole cabbage cut up)
+1/2 cup mayo
+1/8 cup rice vinegar
+1/8 cup sugar
+
