@@ -83,7 +83,7 @@ https://www.youtube.com/watch?v=Kibux6TUXMg
 * 1 tsp cumin
 * 1 tsp salt
 
-Push the Bean Button and let naturally release.
+Push the Bean Button and let naturally release. If no "bean button", do 45 min on default heat/pressure.
 
 ## Baked Ziti
 
